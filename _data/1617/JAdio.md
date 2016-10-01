@@ -1,4 +1,4 @@
-######emoji :panda_face: y'all!!
+######emoji :simple_smile: y'all!!
 
 about_me
 
