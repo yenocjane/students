@@ -1,4 +1,4 @@
-######emoji :simple_smile: y'all!!
+######emoji :relaxed: y'all!!
 
 about_me
 
